@@ -6,4 +6,8 @@ This is where you'll find all the leaked servers! This will get updated as I get
 
 **IMPORTANT**
 
-KeyBoxx Also Equals AeroGens Code.
+KeyBoxx Also Equals AeroGens + FluxGens Code.
+
+Keep up with my projects by going to my solo.to ( https://solo.to/Equipable )
+
+Discord: Equip#4052
